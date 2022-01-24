@@ -1,2 +1,2 @@
 # projetinhos
-Repositório para salvar projetinhos que acho válido compartilahr com as pessoas
+Repositório para salvar projetinhos que acho válido compartilhar com as pessoas
